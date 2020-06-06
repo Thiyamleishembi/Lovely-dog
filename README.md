@@ -22,7 +22,7 @@ Mobile:
 Email: thiyamleishembi@gmail.com
 
 
-  Let's come to the main point.You wanted to know the stories right.Well it is true story happened to one of my friend.
+  Let's come to the main point.You wanted to know the story right.Well it is a true story happened to one of my friend.
    
   We all love ours pets very much, don't we? This is the story about a loyal dog named Tuku.
   
@@ -50,11 +50,11 @@ Email: thiyamleishembi@gmail.com
   ![Tuku](https://animalso.com/wp-content/uploads/2018/02/white-husky-2.jpg)
   
   
-    It was about 10 years ago.The day was warm and pleasant.It was summer season.Everybody would have like to rest
-    and enjoy theSunday.As usual tuku goes to the field with his owner but that day his owner did not go since it 
-    was Sunday.Everyone of us just want to relax on Sunday.
+   It was about 10 years ago.The day was warm and pleasant.It was summer season.Everybody would have like to rest
+   and enjoy theSunday.As usual tuku goes to the field with his owner but that day his owner did not go since it 
+   was Sunday.Everyone of us just want to relax on Sunday.
     
-    Tuku insisted his owner to the field rolling here and there. But the owner refused to. 
+   Tuku insisted his owner to the field rolling here and there. But the owner refused to. 
     
     
     
